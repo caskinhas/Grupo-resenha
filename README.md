@@ -1,1 +1,2 @@
 # Grupo-resenha
+-Lucca Martins
